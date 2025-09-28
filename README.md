@@ -11,3 +11,4 @@ Here is the Beta version of Beyond the Horizon and The Wrath of Takeshi's Digita
 (1) https://sheeba-berries.itch.io/beyond-the-horizon
 (2) https://np1997-productions.itch.io/the-wrath-of-takeshi-digital-novella
 (3) https://np1997-productions.itch.io/the-wrath-of-takeshi-demo-game
+
